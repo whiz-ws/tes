@@ -1,0 +1,1 @@
+# fotooo prank teman
