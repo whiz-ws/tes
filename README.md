@@ -1,1 +1,1 @@
-# fotooo prank teman
+# //https.foto prank teman
